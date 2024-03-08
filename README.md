@@ -1,0 +1,7 @@
+- 👋 Hi, I’m @francis-vca
+- 👀 I’m interested in drawing, computer science and general art.
+- 🌱 I’m currently learning better drawing techniques
+- 💞️ I’m looking to collaborate on projects with my team
+- 📫 How to reach me: add me on discord (Francis_vca)
+- 😄 Pronouns: He/Him
+- ⚡ Fun fact: I'm a dum-dum
